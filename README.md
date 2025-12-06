@@ -1,4 +1,4 @@
-# Helped Frustrated or Distressed While Dealing with Technical Issue
+# Helped Frustrated or Distressed Users While Dealing with Technical Issue
 
 ## Objective
 

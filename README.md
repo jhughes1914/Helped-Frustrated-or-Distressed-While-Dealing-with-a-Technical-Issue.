@@ -1,0 +1,1 @@
+# Helped-Frustrated-or-Distressed-While-Dealing-with-a-Technical-Issue.
